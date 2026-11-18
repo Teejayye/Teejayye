@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hi I am a student (2007) at the university of Amsterdam Business and Economics. Im in the class of 28 and just do small projects for fun.<br><br>In the sude I am a microinfluencer, posting fitchecks etc on tiktok and instagram :)<br><br>Im lowk a larp but im just doing ts for fun
+Larping
 
 
 ## 🌐 Socials:
